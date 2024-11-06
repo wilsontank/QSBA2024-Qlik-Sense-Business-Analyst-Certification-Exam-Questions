@@ -1,0 +1,1 @@
+# QSBA2024-Qlik-Sense-Business-Analyst-Certification-Exam-Questions
